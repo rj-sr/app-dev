@@ -28,4 +28,3 @@ A former soldier, **Violet Evergarden**, starts a new life writing letters for p
 | **Notable Episode**| Episode 10 - A story of grief  |
 
 ![Violet Evergarden Poster](https://m.media-amazon.com/images/M/MV5BMWUwNDFiNjQtYjQ0MC00MTcxLWE0MGQtNTdkYTlhZGU2NDFmXkEyXkFqcGc@._V1_.jpg)
-)
