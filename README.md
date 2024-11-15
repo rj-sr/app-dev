@@ -27,5 +27,5 @@ A former soldier, **Violet Evergarden**, starts a new life writing letters for p
 | **Genre**          | Drama, Fantasy                 |
 | **Notable Episode**| Episode 10 - A story of grief  |
 
-![Violet Evergarden Poster](![image](https://github.com/user-attachments/assets/7ae57433-f9b7-4e6b-bdc5-ac20c2219d47)
+![Violet Evergarden Poster](https://m.media-amazon.com/images/M/MV5BMWUwNDFiNjQtYjQ0MC00MTcxLWE0MGQtNTdkYTlhZGU2NDFmXkEyXkFqcGc@._V1_.jpg)
 )
